@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @cytronx
 - 👀 I’m interested in everything
-- 🌱 I’m currently learning how to dominate the world !!! LOL
+- 🌱 I’m currently learning how to reveal the chinese plague
 - 💞️ I’m looking to collaborate on object detection
 - 📫 How to reach me ... you can't
 
